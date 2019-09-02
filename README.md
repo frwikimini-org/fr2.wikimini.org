@@ -1,0 +1,1 @@
+# fr2.wikimini.org
